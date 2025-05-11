@@ -1,0 +1,1 @@
+# magia_hakatony2025
